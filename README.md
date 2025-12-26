@@ -59,8 +59,14 @@ There is **no financial guarantee** — only vibes, memes, and frogs 🐸✨
 ---
 
 ## 🌐 Community
-- Twitter (X): _Coming Soon_  
-- Telegram: _Coming Soon_  
+## 🌐 Official Links
+
+🔗 **Website / Launch Image:** https://ibb.co.com/93GNnntJ  
+📌 **Telegram:** https://t.me/FrogoNova  
+🐦 **Twitter (X):** https://x.com/NovaFrogo  
+▶️ **YouTube:** https://youtube.com/@frogonova?si=cR60bYtwBjuY_HCY  
+🎵 **TikTok:** https://www.tiktok.com/@frogonova?_r=1&_t=ZS-92Y1schrLhE  
+🐙 **GitHub Repo:** https://github.com/frogonova/FROGONOVA  
 
 ---
 
