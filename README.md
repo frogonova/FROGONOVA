@@ -57,8 +57,6 @@ FrogoNova is a **meme coin created for fun, community, and culture**.
 There is **no financial guarantee** — only vibes, memes, and frogs 🐸✨
 
 ---
-
-## 🌐 Community
 ## 🌐 Official Links
 
 🔗 **Website / Launch Image:** https://ibb.co.com/93GNnntJ  
